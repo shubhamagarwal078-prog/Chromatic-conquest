@@ -1,2 +1,0 @@
-# Chromatic-conquest
-Rough1 
